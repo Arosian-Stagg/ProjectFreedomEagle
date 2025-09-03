@@ -13,7 +13,6 @@ __________________
 STAGG WURLD: Small Survival World, ran for a couple days, might do more.
 __________________
 Blossom: creative world of a couple things (ignore)
-Squid game(WIP) small thing never got to it (ignore)
 __________________
 
 LOW ON FIRE: texture pack to reduce fire on screen
